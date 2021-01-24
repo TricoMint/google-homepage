@@ -1,1 +1,1 @@
-I am here to learn how to make a google look alike page so that I can become better versed in whatever I need to become better at web stuff.
+I am here to learn how to make a google look alike page so that I can become better versed in whatever I need to to become better at web stuff.
